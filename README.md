@@ -7,12 +7,7 @@
 <img src="https://files.catbox.moe/pcnv78.jpg" width="200" height="200" alt="N"></a>  
 <div align="center">
 
-    [新book](https://clovery.atabook.org)  
-
-ㅤ  ㅤ [rentry wip ](wip) ㅤ
-ㅤ 
-
-[strawpage wip ](wip)
+    [syakeko](https://github.com/syakeko)ㅤㅤㅤ+ㅤㅤㅤ[atabook](https://clovery.atabook.org/) 
 <div align="center">
 
 <img src="https://files.catbox.moe/hw8ba3.gif" width="51" height="21">
