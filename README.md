@@ -7,7 +7,7 @@
 <img src="https://files.catbox.moe/pcnv78.jpg" width="200" height="200" alt="N"></a>  
 <div align="center">
 
-  [新book wip ](wip) 
+  [新book]https://clovery.atabook.org/ 
 
 ㅤ  ㅤ [rentry wip ](wip) ㅤ
 ㅤ 
